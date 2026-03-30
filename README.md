@@ -37,7 +37,3 @@ To begin my career as a Data Analyst in a growth-oriented organization where I c
 
 --- 
 
-## Connect With Me
-
-**LinkedIn:**  
-https://www.linkedin.com/in/kaushal-chanchadiya-57199b2a8/
